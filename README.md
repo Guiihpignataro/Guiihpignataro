@@ -1,4 +1,7 @@
-### Hi there 👋
+### Infinite in mystery is the gift of the Goddess
+We seek it thus, and take to the sky
+Ripples form on the water's surface
+The wandering soul knows no rest
 
 <!--
 **Guiihpignataro/Guiihpignataro** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
